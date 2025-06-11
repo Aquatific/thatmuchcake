@@ -20,9 +20,15 @@ Bootleg Secret Life , and Beyond Life !
            ⠀─── ⋆⋅☆⋅⋆ ──
 
 " You seen nothing ! It's good , no worries . That was Terrifying . " - Linked Life song
+
 " It's my boy , theyre stealing my boy ! " - Clock Life song
+
 " I'm gonna be banned if I die again . " - Final Life song
+
 " Accident ? What do you mean ? I'm sorry , i've lost so much time " - Swap Life song
+
 " I'm not gonna lie, i'm gonna die ! i'm dead , goodbye . " - Interclocked Life song
+
 " Not going well, I can't die like this ! Time for me to perish it seems ! " - Bootleg Secret Life song
+
 " Behind you ! Boogey attack ! How did you fall for that? " - Second Life song
