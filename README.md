@@ -21,6 +21,8 @@ Bootleg Secret Life , and Beyond Life !
 
 ➤  C + H for fandom (MCYT or FNAF) is always accepted !
 
+➤  DO NOT COPY OR COVER !! inspo is always okay though !!
+
 " I ain't dying , no harm in trying ! "
 
            ⠀─── ⋆⋅☆⋅⋆ ──
