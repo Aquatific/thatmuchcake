@@ -7,14 +7,20 @@
            ⠀─── ⋆⋅☆⋅⋆ ──
 
 I am a GIANT remake life series fan ! This includes ;
+
 Silent Life , Interclocked Life , Flipped Life ˗ˏˋ ★ ˎˊ˗
+
 Swap Life , Ultimate Life , Linked Life
+
 Bootleg Secret Life , and Beyond Life !
 
            ⠀─── ⋆⋅☆⋅⋆ ──
 
+
 ➤  Mainly basic DNI , and I would prefer not to be flirted with .
+
 ➤  C + H for fandom (MCYT or FNAF) is always accepted !
+
 " I ain't dying , no harm in trying ! "
 
            ⠀─── ⋆⋅☆⋅⋆ ──
